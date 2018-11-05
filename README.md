@@ -1,5 +1,8 @@
 # 2018 Election Forecast
 
-Following the lead of my colleague, [Ryan Enos](http://ryandenos.com/), 
+My colleague, [Ryan Enos](http://ryandenos.com/), has "pre-registered" [his forecast](https://twitter.com/RyanDEnos/status/1059405996320321536) for the 2018 congressional elections as follows: 
 
-My forecast for the 2018 election
+- Democrats easily retake the House. 
+- I would be a little surprised, but not shocked, if Democrats retake the Senate.
+
+Let me follow his lead and provide my own forecast.
